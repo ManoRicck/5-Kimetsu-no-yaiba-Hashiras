@@ -1,4 +1,4 @@
-https://github.com/user-attachments/assets/7e16e912-4d03-4d24-b557-c2670f7cc285
+https://github.com/user-attachments/assets/a14ad47f-c959-4470-ad1f-0646fa0eb8a4
 
 🗡️ Kimetsu no Yaiba – Galeria dos Hashiras
 
